@@ -4,6 +4,8 @@
 
 김혜인 hyeinisfree 완료
 
+김수빈 papajj06    완료
+
 최영진 youngjinc 완료
 
 임수정 hello-SiOO 완료
