@@ -13,3 +13,5 @@
 임수정 hello-SiOO 완료
 
 양나원 ynawhocodes 완료
+
+김윤지 objectio 완료
