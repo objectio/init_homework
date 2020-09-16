@@ -14,4 +14,6 @@
 
 양나원 ynawhocodes 완료
 
+전채연 b1urrrr 완료
+
 탁영진 z-land 완료
