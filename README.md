@@ -13,3 +13,5 @@
 임수정 hello-SiOO 완료
 
 양나원 ynawhocodes 완료
+
+탁영진 z-land 완료
